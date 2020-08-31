@@ -9,7 +9,7 @@ hi! i'm a student studying at dunman high school.
 - sketCHENg flowers 🌻
 - acting 🎭
 - playing 中阮 🪕
-- snapping pictures of the mesmerising skylines 🌌🦋
+- snapping pictures of the mesmerising skylines 🌌
 
 **my favourite food** 🏪
 - bubble tea 🍵
