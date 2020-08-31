@@ -4,24 +4,24 @@ _my work space for 2020 teachers' day project_
 
 hi! i'm a student studying at dunman high school. 
 
-**my passion:**
-- painting SIneries
-- sketCHENg flowers 
-- acting 
-- playing 中阮
-- snapping pictures of the mesmerising skylines 
+**my passion:** 💓
+- painting SIneries 🌄
+- sketCHENg flowers 🌻
+- acting 🎭
+- playing 中阮 🪕
+- snapping pictures of the mesmerising skylines 🌌🦋
 
-**my favourite food**
-- bubble tea 
-- oreo milkshake 
-- japanese ramen 
-- california maki 
-- tiramisu cake 
+**my favourite food** 🏪
+- bubble tea 🍵
+- oreo milkshake 🥤
+- japanese ramen 🍜
+- california maki 🍙
+- tiramisu cake 🍮
  
- **my education**
- - poi ching school 
- - dunman high school 
- - moe language centre 
+ **my education** 👩🏻‍🎓
+ - poi ching school 🎓
+ - dunman high school 📖
+ - moe language centre 🇯🇵
  
 -------------
 
