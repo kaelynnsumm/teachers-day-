@@ -45,6 +45,6 @@ Thank you Ms Low,
 
 For giving us your time, energy and talent
 
-To ensure our brightest future. 
+In ensuring our brightest future. 
 
 We want to be just like you! 
