@@ -35,7 +35,7 @@ For being there when we're low.
 
 When we consider all you've taught us, 
 
-From 'no-arc-no-mark' to the signature 'math p.a.u', 
+From 'no-arc-no-mark' to the signature 'math p.a.u' to 'the hot favourites', 
 
 We want to be like you- 
 
